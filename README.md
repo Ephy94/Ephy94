@@ -5,7 +5,3 @@ I’m looking to collaborate on how to monetize and upscale my skill to avoid wr
 How to reach me contact me on Whatsapp 0755661689, @Atienothewriter on Facebook, Ephie Atieno on LinkedIn.
 Pronouns: she/ her
 Fun fact: as a child i loved dancing. I would sneek to movie showrooms during the free hours to master dancing styles. As a grown up i have become so insecure to showcase my dancing skills since i fear being mocked and ridiculed. 
-
-Ephy94/Ephy94 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
